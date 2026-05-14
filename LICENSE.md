@@ -1,4 +1,4 @@
-# 
+# elite MathType for PC | MathType for Windows Script | matrix-operations + equation-editing offers the most advanced MathType for PC | MathType for Windows script, with
 
 
 
